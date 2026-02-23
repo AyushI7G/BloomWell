@@ -8,3 +8,4 @@ Powered by the compassionate AI 🌿Amara, it listens you, helps you reflect, tr
 Because you deserve care every day, not just on hard days.
 
 jhekjhfk feh 
+dh edkeh kdhke
