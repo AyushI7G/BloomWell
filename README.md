@@ -6,16 +6,3 @@ Meet 🌸BloomWell, your safe space for emotional wellness.
 Powered by the compassionate AI 🌿Amara, it listens you, helps you reflect, tracks your mood, and gently guides you toward calm and clarity, one conversation at a time.  
 
 Because you deserve care every day, not just on hard days.
-
-
-
-
-jhekjhfk feh 
-dh edkeh kdhke
-uefk fkha kfdka
-d askd akhd kahdk ak
-ekfnlnflnnsf nkfla 
-knealfnasfnkan
-fknslfk skfhslflks flsjl 
-j ekahfk eakfh ka
-dag kdak fkah dhaek a
