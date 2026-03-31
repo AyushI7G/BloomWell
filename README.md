@@ -8,3 +8,4 @@ Powered by the compassionate AI 🌿Amara, it listens you, tracks your mood, and
 Because you deserve care every day, not just on hard days.
 
 afh ahfak hfkja fkjsa h
+afkaj hflja fkjah fkajhg kahkj 
